@@ -1,6 +1,7 @@
 # Hi  👋
+***Welcome to my Github Profile***  😊  
 
-I'm **Omal Shivan** !
+**I'm  __Omal Shivan__ !**
 
-> - *currently* : Integrated MSc Comuter Science Student at Cochin University of Science and Technology
+> - *currently* : **Integrated MSc Comuter Science Student at Cochin University of Science and Technology**
 
