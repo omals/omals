@@ -5,4 +5,4 @@
 
 > - *currently* : **Integrated MSc Comuter Science Student at Cochin University of Science and Technology**
 
-> - *How to reach me* :  **[LinkedIn](https://www.linkedin.com/omal-s-a1044a227)  [Gmail](omammu311@gmail.com)**
+> - *How to reach me* :  **[LinkedIn](https://www.linkedin.com/in/omal-s-a1044a227)  [Gmail](omammu311@gmail.com)**
